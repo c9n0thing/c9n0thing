@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software Engineering
 - 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on Freelance Projects
-- 📫 How to reach me -juneluisb@gmail.com
+- 📫 How to reach me - juneluisb@gmail.com
 - 😄 Pronouns: He, Saved-By-His-Grace
 - ⚡ Fun fact: I'm an electric guitarist hehe
 
